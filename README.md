@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Kat!
+- 👀 I’m interested in fashion, reading, online shopping.
+- 🌱 I’m currently learning English.
